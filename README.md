@@ -5,9 +5,9 @@ Salma Kabous @Asak sur slack
 
    
 
-   b. Trader de l'obscur (pas fait)
+   b. Trader de l'obscur (complet)
 
 
 
-   c. Route des incubateurs (pas fait)
+   c. Route des incubateurs (pas fait..)
 
